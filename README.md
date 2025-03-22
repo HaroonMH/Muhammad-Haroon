@@ -65,7 +65,7 @@ I’m passionate about pushing the boundaries of what's possible with AI. My rec
 ## 🔗 Let's Connect
 
 - 📧 Email: [muhammadharoon2580@gmail.com](mailto:muhammadharoon2580@gmail.com)  
-- 🔗 GitHub: [@MuhammadHaroon](https://github.com/MuhammadHaroon)  
+- 🔗 GitHub: [@MuhammadHaroon](https://github.com/HaroonMH)  
 - 💼 LinkedIn: [muhammad-haroon-33a71b176](https://linkedin.com/in/muhammad-haroon-33a71b176)
 
 ---
